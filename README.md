@@ -1,0 +1,2 @@
+# estudos
+ aprendidos no curso
